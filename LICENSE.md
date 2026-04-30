@@ -1,4 +1,4 @@
-
+Experience spin a soccer card like never before with no-ban Script for spin a soccer card, the #1 Script. Includes auto-upgrade and no cooldown for
 
 
 
